@@ -1,1 +1,5 @@
-https://discord.com/api/webhooks/1050497108354007140/nolUWPD0IAFfn2mJQaTVKS09RdFjW4qCClm7FI58RmgC61DEPgPC0H5el8YnAqaeC7V_
+Kendinize Özel Stealer Almak için;
+Discord: lroxy#4011
+Discord Server: https://discord.gg/zcheck
+
+Fİyat vb için gelin sunucuya
